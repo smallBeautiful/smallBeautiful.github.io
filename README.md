@@ -1,0 +1,2 @@
+# smallBeautiful.github.io
+wiki
